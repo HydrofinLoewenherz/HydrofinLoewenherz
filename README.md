@@ -1,4 +1,4 @@
-### Hi there 👋👋👋👋👋
+### Hi there 👋
 
 My name is Paul Wagner, also known as Hydrofin. I like to use technologies like
 
